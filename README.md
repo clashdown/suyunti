@@ -1,18 +1,18 @@
 # 速云梯官网最新地址
 
-永久官网：[suyunti.com](https://c.jichangs.com/node1)
+永久官网：[suyunti.com](https://c.jichangs.com/suyunti)
 
 下面是最新地址：
 
-地址1：[https://suyunti72.xyz](https://c.jichangs.com/node1)
+地址1：[https://suyunti72.xyz](https://c.jichangs.com/suyunti)
 
-地址2：[https://suyunti76.xyz](https://c.jichangs.com/node1)
+地址2：[https://suyunti76.xyz](https://c.jichangs.com/suyunti)
 
 ## 速云梯优惠码
 
 【优惠活动】
 
-速云梯包年7折优惠代码：[YY19](https://c.jichangs.com/node1)
+速云梯包年7折优惠代码：[YY19](https://c.jichangs.com/suyunti)
 
 ## 简介
 
@@ -52,7 +52,7 @@
 |----|----|----|----|----|
 |100GB使用流量<br/>2个设备同时使用<br/>最高60M速率<br/>工单客服支持<br/>支持SSR、V2ray节点<br/>国内中转节点<br/>解锁流媒体<br/>可用入门版节点|200GB使用流量<br/>3个设备同时使用<br/>最高150M速率<br/>工单客服支持<br/>支持SSR、V2ray节点<br/>国内中转节点<br/>解锁流媒体<br/>可用入门版节点<br/>可用基础版节点|350GB使用流量<br/>5个设备同时使用<br/>最高300M速率<br/>工单客服支持<br/>支持SSR、V2ray节点<br/>国内中转节点<br/>解锁流媒体<br/>可用入门版节点<br/>可用基础版节点<br/>可用标准版节点|600GB使用流量<br/>8个设备同时使用<br/>不限制速率<br/>Telegram客服技术支持<br/>支持SSR、V2ray节点<br/>国内中转节点<br/>解锁流媒体<br/>可用入门版节点<br/>可用基础版节点<br/>可用标准版节点<br/>IPLC专线节点<br/>可用旗舰版节点(可用所有节点)|1200GB使用流量<br/>10个设备同时使用<br/>不限制速率<br/>Telegram客服技术支持<br/>支持SSR、V2ray节点<br/>国内中转节点<br/>解锁流媒体<br/>可用入门版节点<br/>可用基础版节点<br/>可用标准版节点<br/>IPLC专线节点<br/>可用旗舰版节点(可用所有节点)|
 
-[![速云梯机场套餐价格](suyunti_20240713_201209.png)](https://c.jichangs.com/node1)
+[![速云梯机场套餐价格](suyunti_20240713_201209.png)](https://c.jichangs.com/suyunti)
 
 ## 速云梯官网常见问题
 
